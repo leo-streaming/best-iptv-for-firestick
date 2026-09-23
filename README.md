@@ -1,4 +1,4 @@
-# 🔥 Best IPTV for Firestick 2027: Fast Setup, Smooth Streaming & Live TV
+#  Best IPTV for Firestick 2027: Fast Setup, Smooth Streaming & Live TV
 
 Amazon Firestick remains one of the easiest ways to bring live TV, sports, movies and on-demand entertainment to almost any television.
 
